@@ -1,4 +1,4 @@
-5,000,000.00 BMUSD שָׁלוֹם® SAAOLMX ChefSol ChefJson ChefEmi @ChefMusk  B-SDFF-BYD-605-158-GLS-BMW Audit.log 
+255,000,000.00 MUSD שָׁלוֹם® SAAOLMX ChefSol ChefJson ChefEmi @ChefMusk  B-SDFF-BYD-605-158-GLS-BMW Audit.log 
 Alianza comercial denominación Audi Bakessalads  amp; Bakes Y Salads Delicious fresh food (2015 - 2025)
 V:1.1 del Informe GRC referente a lo dicho: firmas, QR de verificación y mapeo de controles. 605 (c.fiscal act)
 Dezire Bakes & Salads 158 (SpaceX)
